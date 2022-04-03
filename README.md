@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Ya-Pi.github.io/rsschool-cv/
