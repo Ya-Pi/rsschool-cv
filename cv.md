@@ -10,7 +10,7 @@
 2021 - present system administrator of FARMASI company
 ### Contact
 Phone number mobile: +375 29 5649578
-Email: storm900@mail.ru
+Email: storm900@mail.ru 
 ### Brief information: My goal, is to learn the skills of website layout, to find a remote job. I'm used to getting results, not creating the appearance of work. I have work experience as a system administrator.
 ### Skills: 
 Photoshop
